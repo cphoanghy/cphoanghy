@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cphoanghy
-- 👀 I’m interested in Modernity
+- 👀 I prefer to live in a morden lifestyle 
 - 🌱 I’m currently learning Colleges FPT Polytechnic
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
